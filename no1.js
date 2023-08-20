@@ -1,0 +1,1 @@
+//54 % probability di untuk diberikannya versi
